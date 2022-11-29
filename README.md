@@ -11,6 +11,7 @@ En este curso se ve muchas cosa tan interessantes como necesarias:
 * tener un orden financiero,
 * ingles,
 * etc.
+* creado por el pro de I
 
 y esto no es más que un ejemplo pero de seguro cundo lo vea en el futuro recordare lo mejor **DE PUTO EL QUE LO LEA**, jajaja habia que hacerlo.
 Posdata: esto no lo tomeis tan enserio es un ejemplo y yo puedo hacer en el lo que me venga en GHANA, jejeje. 
